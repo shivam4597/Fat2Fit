@@ -1,0 +1,2 @@
+# Fat2Fit
+If you’re very out of shape or if you have heart disease, high blood pressure, or diabetes, talk to your doctor before starting an exercise program. But remember that even starting out slowly confers some benefits.  According to exercise physiologist Stephen Blair, who has conducted several studies of fitness and mortality, taking just three 10-minute walks a day, five days a week, will keep you healthier.  Get more exercise and you’ll reap even more benefits, including shedding some of that extra weight.
